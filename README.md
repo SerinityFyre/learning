@@ -21,4 +21,3 @@ This will involve:
 
 As I explore these initial areas, I expect that I will discover additional skills and knowledge I had not foreseen, and I will need to remain adaptable and open to experimentation (which sounds awesome).
 
-Removed prior edits
